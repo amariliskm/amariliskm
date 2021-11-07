@@ -1,5 +1,5 @@
 # Halo! 👋
-Perkenalkan nama saya Amarilis Khairina M, atau bisa dipanggil iris.
+Perkenalkan saya Amarilis Khairina atau panggil saja Iris.
 
 ### Github Statistic
 <p align="left">
