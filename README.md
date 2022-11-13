@@ -1,5 +1,5 @@
 # Halo! 👋
-Perkenalkan saya Amarilis Khairina atau panggil saja Iris.
+
 
 ### Github Statistic
 <p align="left">
